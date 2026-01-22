@@ -8,7 +8,7 @@ A constitution for Earth and all its people.
 
 Covenant is the supreme law of Earth—a constitution for organizing human society around dignity, mutual care, and stewardship of the living world. It protects persons, communities, and the planet from domination, extraction, and harm.
 
-This is not aspiration. This is law—written for enactment, built for practice.
+This is law—written for enactment, built for practice.
 
 Sovereignty resides in the People. Earth holds legal standing. Dignity cannot be diminished. Consent cannot be manufactured. The Commons cannot be enclosed.
 
